@@ -1,3 +1,5 @@
+![image alt](https://github.com/Mahak0204-svg/E-Commerce_Project/blob/2a5b3dfcc9a56c359194ecf8543be6dcab0c56b8/website.jpeg)
+
 ✨ Fashora: Your Style Story Starts Here! ✨ Welcome to Fashora, your vibrant online boutique born in the heart of Gwalior, Madhya Pradesh, India! We're not just another e-commerce site; we're curating a collection of goodies that spark joy and let your unique style shine. Think of us as your friendly neighborhood style experts, just a click away!
 
 Imagine this: You're scrolling through Fashora, and you stumble upon that perfect gadget that'll make your life a little easier, or that must-have outfit that screams "you." That's the Fashora experience! We've handpicked a delightful mix of electronics that excite, fashion that empowers, and home & living treasures that cozy up your space.
